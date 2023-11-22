@@ -1,5 +1,3 @@
-# Tutorial
+# Hi, I'm interested to learn how to code
 
-# Code lalalallalala
 
-# papapappapa
